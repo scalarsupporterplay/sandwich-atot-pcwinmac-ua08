@@ -1,4 +1,4 @@
-# 
+# New sandwich attack bot presets for Mac OS | Advanced sandwich attack bot presets for PC Windows. Featuring market orders and historical data analysis — optimized for maximum performance on every platform.
 
 
 
